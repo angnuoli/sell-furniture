@@ -29,7 +29,7 @@ Master 毕业，物品全新货，使用了一年至一年半
 
    ![](http://www.ohioabc.com/data/attachment/forum/201904/02/025024mv0zbnczii6d2g0d.jpg)
 
-9. $199 床+床垫+枕芯
+9. $169 床+床垫+枕芯
 
   [IKEA MALM bed frame full size](https://www.ikea.com/us/en/catalog/categories/departments/bedroom/16284/)
 
@@ -39,7 +39,7 @@ Master 毕业，物品全新货，使用了一年至一年半
 
   ![](http://www.ohioabc.com/data/attachment/forum/201904/02/025020ldxao1xmj1soerii.jpg)
   
-4. 储物箱
+4. 储物箱 $20
 
   https://www.amazon.com/gp/product/B00V87C10Q/ref=ppx_yo_dt_b_asin_title_o08_s00?ie=UTF8&psc=1
 
